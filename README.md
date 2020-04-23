@@ -1,2 +1,2 @@
 # Azu
-Hi! I am a blockchain and web developer in Python. Also into online marketing consultation
+Blockchain and web dev affectiando. Also digital marketing is ma jam.
