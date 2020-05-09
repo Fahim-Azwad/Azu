@@ -1,2 +1,2 @@
 # Azu
-Blockchain and web dev affectiando. Also digital marketing is ma jam.
+Blockchain and web dev aficionado. Also digital marketing is my jam.
